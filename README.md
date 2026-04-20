@@ -8,6 +8,6 @@ Solve the challenge and win a fun job and high-paid offer!
 
 # HowTo
 
-Just look around :)
+Just look around :) https://akaliutau.github.io/hidden-token-26/
 
 
